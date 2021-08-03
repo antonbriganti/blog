@@ -53,4 +53,4 @@ Now, it’s easy for me to say as someone who falls more on the extroverted side
 ## And that’s it! What's next?
 The best advice I can give from here that I haven't shared already is to go and try mentoring for yourself! It's genuinely one of the most I rewarding things I’ve done in my career so far, and I’d encourage anyone who’s interested in trying to seize the opportunity. 
 
-Just remember, like any skill you have, mentoring takes time, effort and experience to get better at. You're not going to be perfect, but you don't have to be. 
+Just remember, like any skill you have, mentoring takes time, effort and experience to get better at. You're not going to be perfect, but you don't have to be. It's all part of the shared learning journey after all, right?
