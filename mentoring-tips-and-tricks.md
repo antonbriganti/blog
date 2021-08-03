@@ -50,7 +50,7 @@ Last but certainly not least, a mentor relationship is not just about building t
 
 Now, it’s easy for me to say as someone who falls more on the extroverted side of the spectrum, “Yeah just make friends with people LOL”. However, you’re not always going to have mentees who are extroverted. You might not even be someone who’s extroverted yourself. The best advice I can give is don’t try to force a relationship by constantly trying to talk about things that aren’t code related. Just communicate genuinely, and it’ll happen naturally. 
 
-## And that’s it!
-I’m sure as I continue to mentor at different levels and in different contexts, these techniques and thoughts will change and I’ll probably develop some new ones too.
+## And that’s it! What's next?
+The best advice I can give from here that I haven't shared already is to go and try mentoring for yourself! It's genuinely one of the most I rewarding things I’ve done in my career so far, and I’d encourage anyone who’s interested in trying to seize the opportunity. 
 
-Mentoring is genuinely one of the most I rewarding things I’ve done in my relatively short career.  I’d encourage anyone who’s interested in trying to seize the opportunity. And if you do, I hope that at least one of these tips and/or tricks help out with your mentoring journey.
+Just remember, like any skill you have, mentoring takes time, effort and experience to get better at. You're not going to be perfect, but you don't have to be. 
